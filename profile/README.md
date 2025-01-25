@@ -1,4 +1,4 @@
-# @++>>!![Canlı Yayın]* Eddie Alvarez - Jeremy Stephens Maçı Canlı Izle #
+# [Jogos em Dir𝚎cto]!!!@!!!As𝚜is𝚝ir Eddie Alvarez x Jeremy Stephens ao vi𝚟o onl𝚒ne Tv #
 
 O Wells Fargo Center acolhe uma das maiores noites da história do Bare Knuckle FC. A KnuckleMania V é encabeçada por Eddie Alvarez vs Jeremy Stephens.
 
